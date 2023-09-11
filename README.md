@@ -1,4 +1,4 @@
-![image](https://github.com/ErikaRoland/ErikaRoland/assets/142854384/96e92d6d-ab6a-40a2-8069-d16c46935d4e)# Welcome to my profile 👋 
+# Welcome to my profile 👋 
 
 I'm aiming for a place in Computer Science at a public university. 
 
