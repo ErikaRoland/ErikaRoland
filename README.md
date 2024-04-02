@@ -1,6 +1,6 @@
 # Welcome to my profile 👋 
 
-I'm aiming for a place in Computer Science at a public university. 
+I'm a commercial specialist with a passion for communication and technology.
 
 I've worked in the commercial area since my first opportunity on the job market, but I'm looking for knowledge in the technology area.
 
